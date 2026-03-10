@@ -2,6 +2,6 @@
 ㅤ
 dni pr*shippers n etc
 
-avoid entering my (pt) area (where I alwayss sit unless that is if im in island) unless invited 🤔 (its one of my safe spots ok??)
+avoid entering my (pt) area ((where I alwayss sit unless that is if im in island)) unless invited 🤔 (its one of my safe spots ok??)
 
 pls refer to me as the country americaauh, im a big kinnie of myself
