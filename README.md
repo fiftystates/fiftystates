@@ -5,3 +5,6 @@ Check my SP for DNI and etc...
 KIN DOUBLES DNI!! AT ALL. 😭😭❌
 
 IM AME IRL 😳🤔
+
+
+CHAT. THIS IS RUSSIA IRL: @SOLARSYSTEM-732
