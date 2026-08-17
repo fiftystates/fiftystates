@@ -22,5 +22,8 @@
 
 <p align="center">DNC + Taking inspiration is not permitted.</p>
 
+<p>my goated siblings :D -Null/Kai [[the host.</p>
+<img src="https://files.catbox.moe/15ekur.png">
+
 </body>
 </html>
