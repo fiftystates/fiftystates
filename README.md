@@ -6,21 +6,7 @@
 
 <h1 align="center"><u>　1NF0RM4710N　</u></h1>
    
-   <p align="center">We are the Ecosystem. [[Egosystem for funsies.</p>
-   
-<p align="center">C+H is highly encouraged, as well as wanting to befriend us!</p>
-   
-<p align="center">It is recommended to check out SP, as some things are not mentioned here.</p>
-
-<p align="center">DNI if you're someone we dislike/have blocked.</p>
-
-<p align="center">DNI if you're gonna be hateful.</p>
-
-<p align="center">Discord:　_rifle_</p>
-
-<p align="center"><b>Pfp is not ours.</b></p>
-
-<p align="center">DNC + Taking inspiration is not permitted.</p>
+   <p align="center">We are the Ecosystem ! [[Egosystem for funsies. C+H ENC+WANTING 2 BEFRIEND! Extra stuff in SP! Very sensitive, please watch it. Tonetags recommended. I have tics, and stims, please ignore them! Huge fictionkin of America. BIG FAN OF HISTORY & GEOGRAPHY. i LIKE both Writing in caps + speaking formally and grammatically correct. I switch between these two typing styles! I will usually distance ourselves from u or be dry, if u make us uncomfy cus communication is a thing I am still working on. Minor bodily; 14-16, only people close to us gets to know the accurate age. </p>
 
 <p>my goated siblings :D -Null/Kai [[the host.</p>
 <img src="https://files.catbox.moe/15ekur.png">
