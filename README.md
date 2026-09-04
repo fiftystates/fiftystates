@@ -6,7 +6,13 @@
 
 <h1 align="center"><u>　1NF0RM4710N　</u></h1>
    
-   <p align="center">We are the Ecosystem ! [[Egosystem for funsies. C+H ENC+WANTING 2 BEFRIEND ENC! Extra stuff in SP! Very sensitive! Tonetags recommended! I have tics and stims, please ignore them! :] Huge fictionkin of America, good cop/bad cop, Dipper, etc. BIG FAN OF HISTORY & GEOGRAPHY. I LIKE both writing in caps + speaking formally and being grammatically correct. I switch between these two typing styles! Minor bodily; 14-16, only people close to us get to know the accurate age. PREFERABLY DNI IF YOU'RE NOT 13+, and also DNI preferably if you're in the Hetalia fandom! Why? Bad experiences + usually toxic people there.</p>
+<p align="center">We are the Ecosystem. [[Egosystem for funsies.</p>
+<p align="center">Check out SP.</p>
+<p align="center">Tonetags recommended!</p>
+<p align="center">Tics and stims present, preferable to ignore.</p>
+<p align="center">Writing styles: Formal + CAPS occasionally.</p>
+<p align="center">Bodily; 14-16</p>
+<p align="center">DNI in SP</p>
 
 <p>ART not ours!</p>
 <img src="https://files.catbox.moe/d3h491.png">
